@@ -9,4 +9,6 @@ mấy nay đang rầm rộ mẫu xe nào mới ra =)) mà xe nhìn xấu vãi<br
 =))  nói z chứ để vốn kinh doanh đi e<br>
 ;> e chắc hệ xạolon quá<br>
 ờ thì mình ko nên thật thà quá ngta nói mình ngu, mà phải biết xaolon tí<br>
-;> mình ko nên khoe mẽ hay kể những dự tính của mình cho ngkhac biết, hoặc thu nhập mình nhiu tháng,bla bla
+;> mình ko nên khoe mẽ hay kể những dự tính của mình cho ngkhac biết, hoặc thu nhập mình nhiu tháng,bla bla...<br>
+;> họ hàng a thì nghĩ sau này a về quê làm lun =)))<br>
+ui sống gần họ hàng mấy cậu mấy dì mệt lắm e
