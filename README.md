@@ -28,4 +28,5 @@ e đã hay quên mà còn luyện sẽ chắc đéo nhớ qq gì lun quá<br>
 luyện sẽ ít thôi e<br>
 ;> nói chung thì a ko có cấm e coi sẽ, mà cấm sao đc mà cấm<br>
 nên là e coi ít ít thôi<br>
-;> có bồ ngủ chung ôm thì cũng chớ e
+;> có bồ ngủ chung ôm thì cũng chớ e<br>
+e ngủ ngon bye e
