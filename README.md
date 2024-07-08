@@ -19,4 +19,5 @@ nói chung thì a làm gì cũng suy nghĩ rất kỹ gòi, nên là khó thay �
 ;> quen đc thì mình ở vs nhau lun e<br>
 ròi cày cho có tài sản, tiền bạc dư dả để tính nhìu chuyện khác<br>
 nay năm tuổi nên a thấy khá là xui e<br>
-=)) chắc e khoái nhất khúc ngủ chung quá
+=)) chắc e khoái nhất khúc ngủ chung quá<br>
+e thích ko lông à
