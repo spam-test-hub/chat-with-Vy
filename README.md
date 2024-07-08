@@ -20,4 +20,5 @@ nói chung thì a làm gì cũng suy nghĩ rất kỹ gòi, nên là khó thay �
 ròi cày cho có tài sản, tiền bạc dư dả để tính nhìu chuyện khác<br>
 nay năm tuổi nên a thấy khá là xui e<br>
 =)) chắc e khoái nhất khúc ngủ chung quá<br>
-e thích ko lông à
+e thích ko lông à<br>
+e đi tắm biển bận bikini à
