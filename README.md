@@ -15,4 +15,6 @@ ui sống gần họ hàng mấy cậu, mấy dì mệt lắm e<br>
 ;> gần cha gần mẹ thì a thấy gò bó...cho nên là a thích ở sài gòn<br>
 đợt a học ĐH a cũng ít về quê, về có đợt tết thôi<br>
 mới lên năm nhất thì còn lạ lẫm nên về thường còn quen ròi thì thích ở lun<br>
-nói chung thì a làm gì cũng suy nghĩ rất kỹ gòi, nên là khó thay đổi quyết định
+nói chung thì a làm gì cũng suy nghĩ rất kỹ gòi, nên là khó thay đổi quyết định<br>
+;> quen đc thì mình ở vs nhau lun e<br>
+ròi cày cho có tài sản, tiền bạc dư dả để tính nhìu chuyện khác<br>
