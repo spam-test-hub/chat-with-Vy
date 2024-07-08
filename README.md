@@ -23,4 +23,5 @@ nay năm tuổi nên a thấy khá là xui e<br>
 e thích ko lông à<br>
 e đi tắm biển bận bikini à<br>
 ;> e thích ko lông tại vì nhìn vô thấy hết, khỏi phải banh vạch hả<br>
-=)) khuya mà mình nói chuyện thấy ghê, dơ dáy quá e
+=)) khuya mà mình nói chuyện thấy ghê, dơ dáy quá e<br>
+e đã hay quen mà còn luyện sẽ chắc đéo nhớ qq gì lun quá
