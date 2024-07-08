@@ -21,4 +21,5 @@ ròi cày cho có tài sản, tiền bạc dư dả để tính nhìu chuyện k
 nay năm tuổi nên a thấy khá là xui e<br>
 =)) chắc e khoái nhất khúc ngủ chung quá<br>
 e thích ko lông à<br>
-e đi tắm biển bận bikini à
+e đi tắm biển bận bikini à<br>
+;> e thích ko lông tại vì nhìn vô thấy hết, khỏi phải banh vạch hả
