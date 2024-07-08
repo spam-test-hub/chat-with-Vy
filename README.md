@@ -18,3 +18,4 @@ mới lên năm nhất thì còn lạ lẫm nên về thường còn quen ròi t
 nói chung thì a làm gì cũng suy nghĩ rất kỹ gòi, nên là khó thay đổi quyết định<br>
 ;> quen đc thì mình ở vs nhau lun e<br>
 ròi cày cho có tài sản, tiền bạc dư dả để tính nhìu chuyện khác<br>
+nay năm tuổi nên a thấy khá là xui e
