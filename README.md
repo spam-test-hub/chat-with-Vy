@@ -22,4 +22,5 @@ nay năm tuổi nên a thấy khá là xui e<br>
 =)) chắc e khoái nhất khúc ngủ chung quá<br>
 e thích ko lông à<br>
 e đi tắm biển bận bikini à<br>
-;> e thích ko lông tại vì nhìn vô thấy hết, khỏi phải banh vạch hả
+;> e thích ko lông tại vì nhìn vô thấy hết, khỏi phải banh vạch hả<br>
+=)) khuya mà mình nói chuyện thấy ghê, dơ dáy quá e
