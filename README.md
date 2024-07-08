@@ -3,4 +3,6 @@
 =)) a biết e coi cũng 1 khoảng thời gian ngắn ròi<br>
 =))) gu e là trần trụi ko lông à<br>
 ;> trong mắt e chắc a ngon lắm<br>
-;> nay chồng ngủ sớm nhe
+;> nay chồng ngủ sớm nhe<br>
+e thích xe vinfast hem<br>
+mấy nay đang rầm rộ mẫu xe nào mới ra =)) xe nhìn xấu vãi
