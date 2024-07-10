@@ -10,3 +10,4 @@ chồng code xíu ròi chồng cũng ngủ nà<br>
 ;> mình ở chung,ngủ chung chắc quen mùi nhau<br>
 a thì đó giờ a hong có xài nước hoa<br>
 tối tối có người ôm ngủ a cũng thích<br>
+;> rảnh a viết code thôi, chứ lên mạng xàm lồn nhìu quá
