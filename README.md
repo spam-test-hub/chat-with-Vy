@@ -6,5 +6,6 @@ iu xa e bị suy nghĩ nhìu phải hem<br>
 ;> ừm thì iu xa thì phải  suy nghĩ nhìu ròi e<br>
 chồng code xíu ròi chồng cũng ngủ nà<br>
 ;> chắc mỗi ngày mỗi nhắn e mới ko overthinking đc<br>
-;> ghệ a làm gì làm đi a nhắn từ từ và sẽ hong xóa cái repos này
-;> mình ở chung,ngủ chung chắc quen mùi nhau
+;> ghệ a làm gì làm đi a nhắn từ từ và sẽ hong xóa cái repos này<br>
+;> mình ở chung,ngủ chung chắc quen mùi nhau<br>
+a thì đó giờ a hong có xài nước hoa
