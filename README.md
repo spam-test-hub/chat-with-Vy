@@ -12,3 +12,4 @@ a thì đó giờ a hong có xài nước hoa<br>
 tối tối có người ôm ngủ a cũng thích<br>
 ;> rảnh a viết code thôi, chứ lên mạng xàm lồn nhìu quá<br>
 ui xàm lồn ròi nó buff tương tác thôi e<br>
+giờ a bùn ngủ gòi
