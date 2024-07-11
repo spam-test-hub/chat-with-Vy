@@ -30,4 +30,5 @@ cái y chang hình đó e<br>
 switch xịn thì cảm giác gõ mới tốt đc<br>
 ;> a tăng cân thì a cũng mún tập thể dục đó<br>
 ;> a sẽ nhảy việc đến khi tìm đc việc ưng ý<br>
-;> nói chung chuyện làm của a thì e cứ kệ đi, miễn mình giữ niềm tin đến khi gặp nhau là đc
+;> nói chung chuyện làm của a thì e cứ kệ đi, miễn mình giữ niềm tin đến khi gặp nhau là đc<br>
+có mẹ nào lên báo ở Đồng Nai đầu độc gì kìa =)), mẹ spam làm như ai ở Đồng nai cũng chơi độc
