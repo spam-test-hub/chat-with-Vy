@@ -38,4 +38,5 @@ coi xàm xàm đéo có lợi ích gì<br>
 ;> ở đâu mà tư tưởng thoáng là a thích như sài gòn z, còn tụi ân miền bắc, trung bắc ko hợp vs a<br>
 ;> a đi làm thì ko mất lòng sếp mà mất lòng mấy người làm chung =))<br>
 =)) ui kệ mịa quan trọng người trả tiền cho mình chứ tụi làm chung kệ mẹ nó<br>
-;> cuộc sống của a tạm ổn, mà a mún gặp e cơ
+;> cuộc sống của a tạm ổn, mà a mún gặp e cơ<br>
+dạo này ghệ a có luyện sẽ hem
