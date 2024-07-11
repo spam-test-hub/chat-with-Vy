@@ -19,4 +19,5 @@ làm như năm tuổi nó ko đc xuông xẻ cho lắm e<br>
 cũng có xiền sắm quần áo, uống trà sữa, ăn uống này kia<br>
 ;> đồ a dùng có mấy món là đồ tốt tuổi thọ dùng lên đến 4-5 năm lun<br>
 ;> ví dụ như a đang nhắn vs e, gõ bằng bàn phím cơ xài 2-3 năm<br>
-a hong có gõ laptop, gõ lap chán lắm e
+a hong có gõ laptop, gõ lap chán lắm e<br>
+có vài hãng trung quốc sản xuất bàn phím cơ dùng rất oke đc người việt mình ưa chuộng
