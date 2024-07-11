@@ -24,4 +24,4 @@ có vài hãng trung quốc sản xuất bàn phím cơ dùng rất oke đc ngư
 =)) bàn phím logitech,dell gì đó là a chê nhen<br>
 ;> a dùng bàn phím cơ ikbc á<br>
 ![IKBC](https://github.com/spam-test-hub/chat-with-Vy/assets/173946786/400622c0-7135-456d-adc4-b2338d2471b4)
-
+cái y chang hình đó e
