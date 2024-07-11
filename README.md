@@ -24,4 +24,7 @@ có vài hãng trung quốc sản xuất bàn phím cơ dùng rất oke đc ngư
 =)) bàn phím logitech,dell gì đó là a chê nhen<br>
 ;> a dùng bàn phím cơ ikbc á<br>
 ![IKBC](https://github.com/spam-test-hub/chat-with-Vy/assets/173946786/400622c0-7135-456d-adc4-b2338d2471b4)
-cái y chang hình đó e
+cái y chang hình đó e<br>
+;> a thấy tụi dev chuộng keychron mà switch của keychron là của trung quốc a ko thích lắm nên ko mua<br>
+;> của a là vỏ phần cứng của trung còn switch thì của đức<br>
+switch xịn thì cảm giác gõ mới tốt đc
