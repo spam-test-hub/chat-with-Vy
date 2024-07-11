@@ -17,4 +17,5 @@ làm như năm tuổi nó ko đc xuông xẻ cho lắm e<br>
 ;> thì a cũng có công ăn chuyện làm<br>
 ;> mà ý a mún khác cơ<br>
 cũng có xiền sắm quần áo, uống trà sữa, ăn uống này kia<br>
-;> đồ a dùng có mấy món là đồ tốt tuổi thọ dùng lên đến 4-5 năm lun
+;> đồ a dùng có mấy món là đồ tốt tuổi thọ dùng lên đến 4-5 năm lun<br>
+;> ví dụ như a đang nhắn vs e, gõ bằng bàn phím cơ xài 2-3 năm 
