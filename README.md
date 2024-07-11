@@ -15,4 +15,5 @@ mà cũng lười, vs ko có gian tập thể dục e =))<br>
 đợt có máy chạy bộ mà hư ròi e<br>
 làm như năm tuổi nó ko đc xuông xẻ cho lắm e<br>
 ;> thì a cũng có công ăn chuyện làm<br>
-;> mà ý a mún khác cơ
+;> mà ý a mún khác cơ<br>
+cũng có xiền sắm quần áo, uống trà sữa, ăn uống này kia
