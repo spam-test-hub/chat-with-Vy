@@ -27,4 +27,5 @@ có vài hãng trung quốc sản xuất bàn phím cơ dùng rất oke đc ngư
 cái y chang hình đó e<br>
 ;> a thấy tụi dev chuộng keychron mà switch của keychron là của trung quốc a ko thích lắm nên ko mua<br>
 ;> của a là vỏ phần cứng của trung còn switch thì của đức<br>
-switch xịn thì cảm giác gõ mới tốt đc
+switch xịn thì cảm giác gõ mới tốt đc<br>
+;> a tăng cân thì a cũng mún tập thể dục đó
