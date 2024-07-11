@@ -21,4 +21,7 @@ cũng có xiền sắm quần áo, uống trà sữa, ăn uống này kia<br>
 ;> ví dụ như a đang nhắn vs e, gõ bằng bàn phím cơ xài 2-3 năm<br>
 a hong có gõ laptop, gõ lap chán lắm e<br>
 có vài hãng trung quốc sản xuất bàn phím cơ dùng rất oke đc người việt mình ưa chuộng<br>
-=)) bàn phím logitech,dell gì đó là a chê nhen
+=)) bàn phím logitech,dell gì đó là a chê nhen<br>
+;> a dùng bàn phím cơ ikbc á<br>
+![IKBC](https://github.com/spam-test-hub/chat-with-Vy/assets/173946786/400622c0-7135-456d-adc4-b2338d2471b4)
+
