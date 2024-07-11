@@ -9,4 +9,5 @@ gu âm nhạc của e đương nhiên là khác a ròi<br>
 ;> mỗi người mỗi sở thích khác nhau mà e<br>
 hợp tính cách, có điểm chung là đc e<br>
 a cũng sẵn sàng đón nhận sự khác biệt<br>
-;> tối tối thì mình ôm nhau cũng thích
+;> tối tối thì mình ôm nhau cũng thích<br>
+giờ chắc a tăng cũng 5kg so vs hồi đó à
