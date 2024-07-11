@@ -11,4 +11,5 @@ hợp tính cách, có điểm chung là đc e<br>
 a cũng sẵn sàng đón nhận sự khác biệt<br>
 ;> tối tối thì mình ôm nhau cũng thích<br>
 giờ chắc a tăng cũng 5kg so vs hồi đó à<br>
-mà cũng lười, vs ko có gian tập thể dục e =))
+mà cũng lười, vs ko có gian tập thể dục e =))<br>
+đợt có máy chạy bộ mà hư ròi e
