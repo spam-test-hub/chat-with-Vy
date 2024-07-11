@@ -36,4 +36,5 @@ rảnh a viết code thôi e<br>
 coi xàm xàm đéo có lợi ích gì<br>
 đồng nai quê e chắc tiến bộ tư tưởng thoáng e nhễ<br>
 ;> ở đâu mà tư tưởng thoáng là a thích như sài gòn z, còn tụi ân miền bắc, trung bắc ko hợp vs a<br>
-;> a đi làm thì ko mất lòng sếp mà mất lòng mấy người làm chung =))
+;> a đi làm thì ko mất lòng sếp mà mất lòng mấy người làm chung =))<br>
+=)) ui kệ mịa quan trọng người trả tiền cho mình chứ tụi làm chung kệ mẹ nó
