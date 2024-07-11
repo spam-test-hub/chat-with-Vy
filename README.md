@@ -14,4 +14,5 @@ giờ chắc a tăng cũng 5kg so vs hồi đó à<br>
 mà cũng lười, vs ko có gian tập thể dục e =))<br>
 đợt có máy chạy bộ mà hư ròi e<br>
 làm như năm tuổi nó ko đc xuông xẻ cho lắm e<br>
-
+;> thì a cũng có công ăn chuyện làm<br>
+;> mà ý a mún khác cơ
