@@ -3,4 +3,5 @@
 hẹn e 1 ngày ko xa để mình ngủ chung ròi a ôm ấp nắn dú cho<br>
 ;> ngực e ,a bóp như nhào bột z đó =))<br>
 ;> cơm nước chưa e<br>
-tắm rửa ròi chưa e
+tắm rửa ròi chưa e<br>
+;> thì cho 2 năm đó nếu ổn hơn thì ít hơn năm a qua ở chung
