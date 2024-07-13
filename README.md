@@ -7,3 +7,4 @@
 ;> a cho phép e quen a ròi đó<br>
 cho phép quen thì nhắn tin a sẽ rep, hẹn đi chơi a sẽ đi, ôm ấp này kia,..<br>
 thì biết là quen nhau phải đi chơi, ăn uống, này kia mà điều kiện để gặp e ko có ,nên là e thông cảm thời gian đầu cho a
+;> nữa gặp a , e xả nungf liền
