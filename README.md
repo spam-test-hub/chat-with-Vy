@@ -8,4 +8,5 @@
 cho phép quen thì nhắn tin a sẽ rep, hẹn đi chơi a sẽ đi, ôm ấp này kia,..<br>
 thì biết là quen nhau phải đi chơi, ăn uống, này kia mà điều kiện để gặp e ko có ,nên là e thông cảm thời gian đầu cho a<br>
 ;> nữa gặp a , e xả nungf liền<br>
-ròi mấy bữa nay có xem sẽ hem e
+ròi mấy bữa nay có xem sẽ hem e<br>
+ròi e thử đầm z có bớt cô đơn hem
