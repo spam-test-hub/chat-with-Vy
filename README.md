@@ -11,4 +11,5 @@ thì e có nhiu đó chủ đề nên a hỏi z<br>
 ;> đâu e coi phim heo nào, cày đc nhiu tập ròi<br>
 phim chị sếp may mắn và e nhân viên tội nghiệp hả<br>
 ;> ròi hôm nào nungf thì kêu a qua mò sò lông, bóp nắn đồ cho<br>
-=)) nói z qua ngủ nằm chèo queo là chetme
+=)) nói z qua ngủ nằm chèo queo là chetme<br>
+;> a tính trước z đó e
