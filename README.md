@@ -12,4 +12,6 @@ thì e có nhiu đó chủ đề nên a hỏi z<br>
 phim chị sếp may mắn và e nhân viên tội nghiệp hả<br>
 ;> ròi hôm nào nungf thì kêu a qua mò sò lông, bóp nắn đồ cho<br>
 =)) nói z qua ngủ nằm chèo queo là chetme<br>
-;> a tính trước z đó e
+;> a tính trước z đó e<br>
+bồ e ưa tính trước mà e<br>
+=))mà ngta nói "nói trước bước ko qua" 
