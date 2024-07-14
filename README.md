@@ -5,4 +5,5 @@ nay chắc a ngủ sớm<br>
 đợt đó thì có nhìu lý do để a làm job của e á, chứ bth a ko apply vị trí đó<br>
 sao mới giờ mà a bùn ngủ quá<br>
 ròi mấy bữa nay có coi phim heo nửa hong e<br>
-=)) đâu e coi phim nào gửi link a duyệt cho, mới đc coi
+=)) đâu e coi phim nào gửi link a duyệt cho, mới đc coi<br>
+thì e có nhiu đó chủ đề nên a hỏi z
