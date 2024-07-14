@@ -15,4 +15,5 @@ phim chị sếp may mắn và e nhân viên tội nghiệp hả<br>
 ;> a tính trước z đó e<br>
 bồ e ưa tính trước mà e<br>
 =))mà ngta nói "nói trước bước ko qua" <br>
-;> a hay có kế hoạch lắm
+;> a hay có kế hoạch lắm<br>
+a đi đánh răng ròi sắp sửa ngủ nhe
