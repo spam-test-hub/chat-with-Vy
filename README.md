@@ -14,4 +14,5 @@ phim chị sếp may mắn và e nhân viên tội nghiệp hả<br>
 =)) nói z qua ngủ nằm chèo queo là chetme<br>
 ;> a tính trước z đó e<br>
 bồ e ưa tính trước mà e<br>
-=))mà ngta nói "nói trước bước ko qua" 
+=))mà ngta nói "nói trước bước ko qua" <br>
+;> a hay có kế hoạch lắm
