@@ -3,4 +3,6 @@
 ;> e cũng đi tắm cơm nước, rửa bím gì đi ròi tối tối lên seen a<br>
 ;> ghệ a gơn răm nghe đụ, bím, dú đồ thích lắm<br>
 a iu nhìu gòi nên cũng chán vụ 18+<br>
-e mới iu lần đầu nên nungfds thường xuyên phải gòi e
+e mới iu lần đầu nên nungfds thường xuyên phải gòi e<br>
+ngày đó thì cứ iu z thôi chứ còn trẻ trâu mà e<br>
+;> học đh thì mới nghĩ tới chuyện lâu dài này kia thôi
