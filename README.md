@@ -5,4 +5,5 @@
 a iu nhìu gòi nên cũng chán vụ 18+<br>
 e mới iu lần đầu nên nungfds thường xuyên phải gòi e<br>
 ngày đó thì cứ iu z thôi chứ còn trẻ trâu mà e<br>
-;> học đh thì mới nghĩ tới chuyện lâu dài này kia thôi
+;> học đh thì mới nghĩ tới chuyện lâu dài này kia thôi<br>
+như e thì ra ngoài xã hội kiếm tiền, cũng đến tuổi cặp kê nên e nghĩ đến chuyện lâu dài
