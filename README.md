@@ -9,4 +9,5 @@ ngày đó thì cứ iu z thôi chứ còn trẻ trâu mà e<br>
 như e thì ra ngoài xã hội kiếm tiền, cũng đến tuổi cặp kê nên e nghĩ đến chuyện lâu dài<br>
 thì quen e ổn định sớm tí cũng hỏng sao<br>
 ;> đâu hôm nào gặp riêng ròi cho a coi con sò lông của e coi<br>
-gặp cô chị ròi gặp cô e sau
+gặp cô chị ròi gặp cô e sau<br>
+ngủ đi e, mai ròi a nhắn tiếp nhe, gút nine e ;>
