@@ -10,4 +10,5 @@ ui e sống đơn giản hóa vấn đề thôi e<br>
 ;> đọc mấy lần đéo hỉu e nói gì<br>
 ;> a sống có tiền, có cơm ăn, có trà sữa để bú, a sài sang là đc<br>
 dư thì mua nhà, mua đất,...<br>
-=))
+=))<br>
+;> đâu cỡ 10 tây tháng 8 a push code c#, mấy nay lu bu học react quá e<br>
