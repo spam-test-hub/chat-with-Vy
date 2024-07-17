@@ -19,4 +19,5 @@ nói chung thì công ăn chuyện làm a ko có ổn định<br>
 thì cũng có tiền ăn sài mua này mua này mua kia mà đéo có ổn định<br>
 ;> mới có 1 2 ngày nhắn tin sơ sơ cái xà quần ròi e<br>
 ;> a làm job tạm thời cho người quen ý mà<br>
-=)) kiểu như kẹt tiền là ứng tiền trước cũng đc
+=)) kiểu như kẹt tiền là ứng tiền trước cũng đc<br>
+=)) ghệ e trẻ trâu quá
