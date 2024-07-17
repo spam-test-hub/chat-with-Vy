@@ -6,4 +6,5 @@ thơm tho sạch sẽ đoàng hoàng<br>
 tầm tầm 6h tối hơn a mới rảnh<br>
 ;> e viết văn qq gì đọc nhứt đầu, nhứt óc quá e, a đéo hỉu gì<br>
 =)) nói thật vs e là như z<br>
-ui e sống đơn giản hóa vấn đề thôi e
+ui e sống đơn giản hóa vấn đề thôi e<br>
+;> đọc mấy lần đéo hỉu e nói gì
