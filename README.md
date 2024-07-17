@@ -12,4 +12,5 @@ ui e sống đơn giản hóa vấn đề thôi e<br>
 dư thì mua nhà, mua đất,...<br>
 =))<br>
 ;> đâu cỡ 10 tây tháng 8 a push code c#, mấy nay lu bu học react quá e<br>
-;> a chưa chốt đơn e mà quen cỡ 2 năm đi e
+;> a chưa chốt đơn e mà quen cỡ 2 năm đi e<br>
+a thì iu nhìu ròi nên a cân nhắc khá là kĩ
