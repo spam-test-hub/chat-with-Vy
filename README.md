@@ -18,3 +18,4 @@ a thì iu nhìu ròi nên a cân nhắc khá là kĩ<br>
 nói chung thì công ăn chuyện làm a ko có ổn định<br>
 thì cũng có tiền ăn sài mua này mua này mua kia mà đéo có ổn định<br>
 ;> mới có 1 2 ngày nhắn tin sơ sơ cái xà quần ròi e<br>
+;> a làm job tạm thời cho người quen ý mà
