@@ -14,3 +14,4 @@ dư thì mua nhà, mua đất,...<br>
 ;> đâu cỡ 10 tây tháng 8 a push code c#, mấy nay lu bu học react quá e<br>
 ;> a chưa chốt đơn e mà quen cỡ 2 năm đi e<br>
 a thì iu nhìu ròi nên a cân nhắc khá là kĩ
+;> nãy giờ a ngủ quên
