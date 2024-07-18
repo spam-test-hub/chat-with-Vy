@@ -5,4 +5,5 @@ mập bụng bự, hơi lùn lùn, hay làm khùng làm điên cua e, e chịu h
 =)) e kiểu: "buông tha cho tao"<br>
 ;> e cạo lông bím hem, a cạo cho<br>
 ;> hôm nào a lu bu xíu  thì a ít nhắn thôi có gì đâu e<br>
-thì e mún a quân tâm, hay tỉ tê vs e nhìu cũng đc thôi mà e
+thì e mún a quân tâm, hay tỉ tê vs e nhìu cũng đc thôi mà e<br>
+;> a mún gì thì e nói nhe e
