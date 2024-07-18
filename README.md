@@ -17,4 +17,5 @@ a thích tự lập ở riêng, cuộc sống của mình mà mình phải sốn
 nhìn biết xài hao ròi e =))<br>
 ;> hơn 1h a nhắn lại nhe e<br>
 ;> e ghệ đi chùa miếu gì cúng vái cho a xuông sẻ xíu để a lên ăn nằm vs e coi<br>
-dự án công việc của e xuông sẻ hem
+dự án công việc của e xuông sẻ hem<br>
+=)) đi coi bói coi e qua đợt suy thoái này ko e
