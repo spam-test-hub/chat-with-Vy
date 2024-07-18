@@ -21,4 +21,6 @@ dự án công việc của e xuông sẻ hem<br>
 =)) đi coi bói coi e qua đợt suy thoái này ko e<br>
 ;> đi cói bói chỗ nào hay ý e, kiểu nhìu người coi trúng ròi ý, còn ngta nói xuông hay hay là thôi dẹp<br>
 =)) phải coi trúng 100% cho nhìu người chứ coi người trúng người trật cũng dẹp lun e<br>
-;> dự án octokit của e ổn chưa
+;> dự án octokit của e ổn chưa<br>
+AI đi vs PHP ko ổn hả e<br>
+=)) lỡ e có phá sản thì mình vẫn quen, e nhó
