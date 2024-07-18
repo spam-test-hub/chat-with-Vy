@@ -13,4 +13,5 @@ a thích tự lập ở riêng, cuộc sống của mình mà mình phải sốn
 =)) a cũng thuộc dạng ương bướng, bth gia đình nói ít có nghe để vào tai đó<br>
 ;> tính a thì a ko thích sống theo ý người khác, sống theo ý mình mún thôi<br>
 ;> e có thích ăn ốc hem, a cũng có sở thích ăn ngon nữa<br>
-ở chung vs e chắc e xài a hao lắm =))
+ở chung vs e chắc e xài a hao lắm =))<br>
+nhìn biết xài hao ròi e =))
