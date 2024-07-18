@@ -24,4 +24,5 @@ dự án công việc của e xuông sẻ hem<br>
 ;> dự án octokit của e ổn chưa<br>
 AI đi vs PHP ko ổn hả e<br>
 =)) lỡ e có phá sản thì mình vẫn quen, e nhó<br>
-2 vợ chồng mình cạp đất ăn e
+2 vợ chồng mình cạp đất ăn e<br>
+;> sẵn mình nhịn ăn giảm cân lun e
