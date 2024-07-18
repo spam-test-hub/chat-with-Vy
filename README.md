@@ -15,4 +15,5 @@ a thích tự lập ở riêng, cuộc sống của mình mà mình phải sốn
 ;> e có thích ăn ốc hem, a cũng có sở thích ăn ngon nữa<br>
 ở chung vs e chắc e xài a hao lắm =))<br>
 nhìn biết xài hao ròi e =))<br>
-;> hơn 1h a nhắn lại nhe e
+;> hơn 1h a nhắn lại nhe e<br>
+;> e ghệ đi chùa miếu gì cúng vái cho a xuông sẻ xíu để a lên ăn nằm vs e coi
