@@ -19,4 +19,5 @@ nhìn biết xài hao ròi e =))<br>
 ;> e ghệ đi chùa miếu gì cúng vái cho a xuông sẻ xíu để a lên ăn nằm vs e coi<br>
 dự án công việc của e xuông sẻ hem<br>
 =)) đi coi bói coi e qua đợt suy thoái này ko e<br>
-;> đi cói bói chỗ nào hay ý e, kiểu nhìu người coi trúng ròi ý, còn ngta nói xuông hay hay là thôi dẹp
+;> đi cói bói chỗ nào hay ý e, kiểu nhìu người coi trúng ròi ý, còn ngta nói xuông hay hay là thôi dẹp<br>
+=)) phải coi trúng 100% cho nhìu người chứ coi người trúng người trật cũng dẹp lun e
