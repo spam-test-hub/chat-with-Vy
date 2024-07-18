@@ -26,4 +26,6 @@ AI đi vs PHP ko ổn hả e<br>
 =)) lỡ e có phá sản thì mình vẫn quen, e nhó<br>
 2 vợ chồng mình cạp đất ăn e<br>
 ;> sẵn mình nhịn ăn giảm cân lun e<br>
-=)) nhìu năm nữa a bán đất ông bà già ròi mình lấy mình ăn e, ở nhà trọ
+=)) nhìu năm nữa a bán đất ông bà già ròi mình lấy mình ăn e, ở nhà trọ<br>
+<hr>
+;> hoy e ngủ đi nha, gút nine e
