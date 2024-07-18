@@ -3,4 +3,6 @@
 thà ế chứ ko quen bừa đúng hem e<br>
 mập bụng bự, hơi lùn lùn, hay làm khùng làm điên cua e, e chịu hem<br>
 =)) e kiểu: "buông tha cho tao"<br>
-;> e cạo lông bím hem, a cạo cho
+;> e cạo lông bím hem, a cạo cho<br>
+;> hôm nào a lu bu xíu  thì a ít nhắn thôi có gì đâu e<br>
+thì e mún a quân tâm, hay tỉ tê vs e nhìu cũng đc thôi mà e
