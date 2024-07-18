@@ -11,4 +11,5 @@ a vs cha mẹ, họ hàng a thì ko có chung tư tưởng cho nên là a ko th�
 ;> ở gần ông bà già thì phải sống theo ý ổng bả, tư tưởng theo thời của ổng bả cho nên a ko thích ở chung<br>
 a thích tự lập ở riêng, cuộc sống của mình mà mình phải sống theo ý mình chứ e<br>
 =)) a cũng thuộc dạng ương bướng, bth gia đình nói ít có nghe để vào tai đó<br>
-;> tính a thì a ko thích sống theo ý người khác, sống theo ý mình mún thôi
+;> tính a thì a ko thích sống theo ý người khác, sống theo ý mình mún thôi<br>
+;> e có thích ăn ốc hem
