@@ -29,3 +29,6 @@ AI đi vs PHP ko ổn hả e<br>
 =)) nhìu năm nữa a bán đất ông bà già ròi mình lấy mình ăn e, ở nhà trọ<br>
 <hr>
 ;> hoy e ngủ đi nha, gút nine e
+<br>
+![20240719_191851](https://github.com/user-attachments/assets/2d879630-cd7f-4e28-9188-74c56a467cc9)
+nhìn tay a là e đoán nhiu kí e
