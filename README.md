@@ -8,4 +8,5 @@ có nhìu công nghệ viết backend mà sao e chọn PHP?<br>
 backend bằng java,javascript,python,c#<br>
 a làm này tí ròi a nhắn sau nhe e<br>
 ;> e chắc đầu óc suốt ngày nghĩ chuyện đụ nhau, ăn nằm đồ đó<br>
-=)) 
+=)) <br>
+;> ngày nào e cũng, hình ảnh ụ nhau ùa về
