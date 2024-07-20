@@ -6,4 +6,5 @@ tại iu xa e xà quần z chứ iu gần thấy a ngon lành, hợp gu là có 
 e người tà răm mắt thâm quầng<br>
 ;> nhớ gặp a đánh con mắt lên nhe<br>
 e ghệ ngủ chưa e<br>
-ròi đó giờ e có gặp ai lần đầu mà rụng trứng như a chưa
+ròi đó giờ e có gặp ai lần đầu mà rụng trứng như a chưa<br>
+;> thấy a ngon lành quá khoái chứ gì
