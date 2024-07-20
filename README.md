@@ -9,4 +9,5 @@ e ghệ ngủ chưa e<br>
 ròi đó giờ e có gặp ai lần đầu mà rụng trứng như a chưa<br>
 ;> thấy a ngon lành quá khoái chứ gì<br>
 e quen ghệ nhỏ tuổi sướng còn gì e<br>
-chồng ngủ nhe e có gì mai nhắn nhe
+chồng ngủ nhe e có gì mai nhắn nhe<br>
+gút nine e nhe
