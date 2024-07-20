@@ -3,4 +3,5 @@ t7, cn e có đi đâu chơi hem<br>
 ;> mà ngày nào e cũng nghĩ chuyện ụ nhau, ròi trần truồng ý hả<br>
 tại iu xa e xà quần z chứ iu gần thấy a ngon lành, hợp gu là có tật xấu gì cũng chấp nhận mà =))<br>
 ;> e đã bao giờ gặp ai lần đầu mà say nắng như a chưa<br>
-e người tà răm mắt thâm quầng
+e người tà răm mắt thâm quầng<br>
+;> nhớ gặp a đánh con mắt lên nhe
