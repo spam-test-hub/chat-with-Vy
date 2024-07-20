@@ -7,4 +7,5 @@ e người tà răm mắt thâm quầng<br>
 ;> nhớ gặp a đánh con mắt lên nhe<br>
 e ghệ ngủ chưa e<br>
 ròi đó giờ e có gặp ai lần đầu mà rụng trứng như a chưa<br>
-;> thấy a ngon lành quá khoái chứ gì
+;> thấy a ngon lành quá khoái chứ gì<br>
+e quen ghệ nhỏ tuổi sướng còn gì e
