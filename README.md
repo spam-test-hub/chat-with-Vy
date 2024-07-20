@@ -5,4 +5,5 @@ tại iu xa e xà quần z chứ iu gần thấy a ngon lành, hợp gu là có 
 ;> e đã bao giờ gặp ai lần đầu mà say nắng như a chưa<br>
 e người tà răm mắt thâm quầng<br>
 ;> nhớ gặp a đánh con mắt lên nhe
-e ghệ ngủ chưa e
+e ghệ ngủ chưa e<br>
+ròi đó giờ e có gặp ai lần đầu mà rụng trứng như a chưa
