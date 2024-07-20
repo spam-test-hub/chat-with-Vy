@@ -8,4 +8,5 @@ e người tà răm mắt thâm quầng<br>
 e ghệ ngủ chưa e<br>
 ròi đó giờ e có gặp ai lần đầu mà rụng trứng như a chưa<br>
 ;> thấy a ngon lành quá khoái chứ gì<br>
-e quen ghệ nhỏ tuổi sướng còn gì e
+e quen ghệ nhỏ tuổi sướng còn gì e<br>
+chồng ngủ nhe e có gì mai nhắn nhe
