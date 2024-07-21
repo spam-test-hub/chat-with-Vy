@@ -25,4 +25,5 @@ nhắn qua app thì dễ nhắn hơn á e, chứ nhắn như này thì a chỉ n
 ;> đó giờ quen a khóc nhiu lần ròi e<br>
 nói đi nữa a bù cho<br>
 bù cho 1 slot tắm chuồng vs nhau =))<br>
-ròi ai lông ít, lông nhìu biết hết =))
+ròi ai lông ít, lông nhìu biết hết =))<br>
+nói z chứ a ôm ấp, hôn hít bù cho
