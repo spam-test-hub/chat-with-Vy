@@ -15,4 +15,5 @@ chắc nhìu người cũng thắc mắc z<br>
 ;> suốt ngày ăn ngủ,viết code, đi làm mà e nghỉ a ngoại tình gì e<br>
 a hướng nội mà e<br>
 a  bùn ngủ quá e chắc nay ngủ sớm<br>
-;> a iu ít nhắn thì nhắc nhở xíu, aiu nhắn cho nhe
+;> a iu ít nhắn thì nhắc nhở xíu, aiu nhắn cho nhe<br>
+ròi nửa a bóp nắn, ngủ chung bù cho
