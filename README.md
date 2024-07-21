@@ -7,4 +7,5 @@ uống trà còn ngủ đc chứ cà phê thì thua e<br>
 có xiền thì uống trà sữa =))<br>
 ;> iu gần thì chắc e ghệ thấy yên tâm hơn phải hem<br>
 đành z 1 thời gian đi e<br>
-;> e ghệ sợ ngoại tình hay gì
+;> e ghệ sợ ngoại tình hay gì<br>
+làm về code, ngủ ko ngoại tình gì e
