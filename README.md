@@ -10,4 +10,5 @@ có xiền thì uống trà sữa =))<br>
 ;> e ghệ sợ ngoại tình hay gì<br>
 làm về code, ngủ ko ngoại tình gì e<br>
 8 tiếng làm, ăn ngủ mà lăng nhăng gì e<br>
-mấy đứa làm xong cái về nhà ăn ngủ, =)) đéo hỉu sao nó có ny đc e
+mấy đứa làm xong cái về nhà ăn ngủ, =)) đéo hỉu sao nó có ny đc e<br>
+chắc nhìu người cũng thắc mắc z
