@@ -12,4 +12,5 @@ làm về code, ngủ ko ngoại tình gì e<br>
 8 tiếng làm, ăn ngủ mà lăng nhăng gì e<br>
 mấy đứa làm xong cái về nhà ăn ngủ, =)) đéo hỉu sao nó có ny đc e<br>
 chắc nhìu người cũng thắc mắc z<br>
-;> suốt ngày ăn ngủ,viết code, đi làm mà e nghỉ a ngoại tình gì e
+;> suốt ngày ăn ngủ,viết code, đi làm mà e nghỉ a ngoại tình gì e<br>
+a hướng nội mà e
