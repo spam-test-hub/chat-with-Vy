@@ -24,4 +24,5 @@ mắt a giờ mún mở hết lên ròi<br>
 nhắn qua app thì dễ nhắn hơn á e, chứ nhắn như này thì a chỉ nhắn buổi tối thôi e<br>
 ;> đó giờ quen a khóc nhiu lần ròi e<br>
 nói đi nữa a bù cho<br>
-bù cho 1 slot tắm chuồng vs nhau =))
+bù cho 1 slot tắm chuồng vs nhau =))<br>
+ròi ai lông ít, lông nhìu biết hết =))
