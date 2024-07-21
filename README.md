@@ -14,4 +14,5 @@ mấy đứa làm xong cái về nhà ăn ngủ, =)) đéo hỉu sao nó có ny 
 chắc nhìu người cũng thắc mắc z<br>
 ;> suốt ngày ăn ngủ,viết code, đi làm mà e nghỉ a ngoại tình gì e<br>
 a hướng nội mà e<br>
-a  bùn ngủ quá e chắc nay ngủ sớm
+a  bùn ngủ quá e chắc nay ngủ sớm<br>
+;> a iu ít nhắn thì nhắc nhở xíu, aiu nhắn cho nhe
