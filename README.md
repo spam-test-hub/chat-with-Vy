@@ -28,4 +28,5 @@ bù cho 1 slot tắm chuồng vs nhau =))<br>
 ròi ai lông ít, lông nhìu biết hết =))<br>
 nói z chứ a ôm ấp, hôn hít bù cho<br>
 ;> nghe hong hấp dẫn chứ gì e<br>
-=)) e mún bù bằng ụ
+=)) e mún bù bằng ụ<br>
+nào a chốt e đi thì ăn nằm trần truồng e
