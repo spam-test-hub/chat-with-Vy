@@ -20,4 +20,5 @@ ròi nửa a bóp nắn, ngủ chung bù cho<br>
 bữa chụp hình tay a gầy hay mập đó, tay z bóp dú đc chưa =))<br>
 để e chờ lâu quá thì cũng tội e<br>
 a ít nhắn thì đừng có khóc nhe e<br>
-mắt a giờ mún mở hết lên ròi
+mắt a giờ mún mở hết lên ròi<br>
+nhắn qua app thì dễ nhắn hơn á e, chứ nhắn như này thì a chỉ nhắn buổi tối thôi e
