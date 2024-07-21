@@ -17,4 +17,5 @@ a hướng nội mà e<br>
 a  bùn ngủ quá e chắc nay ngủ sớm<br>
 ;> a iu ít nhắn thì nhắc nhở xíu, aiu nhắn cho nhe<br>
 ròi nửa a bóp nắn, ngủ chung bù cho<br>
-bữa chụp hình tay a gầy hay mập đó, tay z bóp dú đc chưa =))
+bữa chụp hình tay a gầy hay mập đó, tay z bóp dú đc chưa =))<br>
+để e chờ lâu quá thì cũng tội e
