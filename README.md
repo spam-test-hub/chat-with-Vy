@@ -9,5 +9,6 @@ a chuẩn bị sức kem đi ngủ nà =))<br>
 kem phải sức vào ban đêm nó mới hiệu quả e =))<br>
 nãy giờ chồng code<br>
 ;> mấy nay e ghệ có luyện sẽ, nungd lon gì hem<br>
-;> đó giờ a chưa gặp gái ngực to như e á
-
+;> đó giờ a chưa gặp gái ngực to như e á<br>
+lúc e gặp a thì e thấy a ngon như nào<br>
+giờ a vẫn ngon như z, thậm chí là hơn
