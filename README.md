@@ -20,4 +20,4 @@ hong năm này thì năm nọ<br>
 ;> cho aiu xin số đo 3 vòng nà e<br>
 150 100 120 =))<br>
 ủa ;> 120 100 90 chứ<>br
-
+con người mà làm như hình tam giác z e, nhỏ dần về đáy
