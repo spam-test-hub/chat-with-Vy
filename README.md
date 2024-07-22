@@ -13,4 +13,6 @@ nãy giờ chồng code<br>
 lúc e gặp a thì e thấy a ngon như nào<br>
 giờ a vẫn ngon như z, thậm chí là hơn<br>
 chắc e quên, chỉ nhớ mang máng a như nào thôi<br>
-quen lâu thì kiểu gì cũng ăn nằm vs nhau e
+quen lâu thì kiểu gì cũng ăn nằm vs nhau e<br>
+hong năm này thì năm nọ<br>
+;> chứ mới quen e thèm đụ quá sao đc
