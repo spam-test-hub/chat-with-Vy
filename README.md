@@ -1,3 +1,5 @@
 ;> hi e ghệ<br>
 a làm cho người quen nên toàn về đúng giờ thôi e, 5h về ròi e<br>
-;> làm job của e, a cũng bị thiếu ngủ z
+bận thì xin nghỉ cũng đc, làm ngày nào tính tiền ngày đó kiểu z
+;> làm job của e, a cũng bị thiếu ngủ z<br>
+
