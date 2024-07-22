@@ -5,5 +5,6 @@ bận thì xin nghỉ cũng đc, làm ngày nào tính tiền ngày đó kiểu 
 ![image](https://github.com/user-attachments/assets/9f337954-a88d-4c1c-abfe-27264ef2579e)<br>
 mấy nay a code reactjs e à<br>
 ghệ a đang làm gì đó ;><br>
-a chuẩn bị sức kem đi ngủ nà =))
+a chuẩn bị sức kem đi ngủ nà =))<br>
+kem phải sức vào ban đêm nó mới hiệu quả e =))
 
