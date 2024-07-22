@@ -16,4 +16,5 @@ chắc e quên, chỉ nhớ mang máng a như nào thôi<br>
 quen lâu thì kiểu gì cũng ăn nằm vs nhau e<br>
 hong năm này thì năm nọ<br>
 ;> chứ mới quen e thèm đụ quá sao đc<br>
-=)) mới quen 1-2 tháng nungf ròi
+=)) mới quen 1-2 tháng nungf ròi<br>
+;> cho aiu xin số đo 3 vòng nà e
