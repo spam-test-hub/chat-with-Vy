@@ -7,5 +7,6 @@ mấy nay a code reactjs e à<br>
 ghệ a đang làm gì đó ;><br>
 a chuẩn bị sức kem đi ngủ nà =))<br>
 kem phải sức vào ban đêm nó mới hiệu quả e =))<br>
-nãy giờ chồng code
+nãy giờ chồng code<br>
+;> mấy nay e ghệ có luyện sẽ, nungd lon gì hem
 
