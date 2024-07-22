@@ -12,4 +12,5 @@ nãy giờ chồng code<br>
 ;> đó giờ a chưa gặp gái ngực to như e á<br>
 lúc e gặp a thì e thấy a ngon như nào<br>
 giờ a vẫn ngon như z, thậm chí là hơn<br>
-chắc e quên, chỉ nhớ mang máng a như nào thôi
+chắc e quên, chỉ nhớ mang máng a như nào thôi<br>
+quen lâu thì kiểu gì cũng ăn nằm vs nhau e
