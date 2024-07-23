@@ -9,4 +9,6 @@ nay năm tuổi chắc sẽ đen e<br>
 để e ghệ nứng lâu, vs đợi lâu quá hem đc<br>
 =)) tranh thủ xài e trước khi e già<br>
 ;> thì iu lâu, e già a ko bỏ e đâu e nhó<br>
-mình cùng nhau kiếm tiền, tối về có nhau
+mình cùng nhau kiếm tiền, tối về có nhau<br>
+sáng thì a bận ngủ chứ hong dậy sớm để nấu ăn đâu e =))<br>
+;> e nấu sẵn a ăn thì đc =))
