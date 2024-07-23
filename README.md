@@ -17,4 +17,5 @@ sáng thì a bận ngủ chứ hong dậy sớm để nấu ăn đâu e =))<br>
 =)) e ghệ chịu liền, quá lời lun e<br>
 ;> e ghệ dạo này ăn ngon ngủ phẻ hem<br>
 ;> z mỗi ngày 5h 6h chiều chồng nhắn e nha vy<br>
-tầm giờ đó a nhắn cho nhe e
+tầm giờ đó a nhắn cho nhe e<br>
+ngủ ngon e nhó
