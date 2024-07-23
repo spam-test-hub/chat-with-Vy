@@ -15,4 +15,5 @@ sáng thì a bận ngủ chứ hong dậy sớm để nấu ăn đâu e =))<br>
 ;> e làm ô sin phục vụ cho a, còn a thì làm đũy cho e<br>
 ;> ăn để có sức ụ vs nắn dú cho e chứ<br>
 =)) e ghệ chịu liền, quá lời lun e<br>
-;> e ghệ dạo này ăn ngon ngủ phẻ hem
+;> e ghệ dạo này ăn ngon ngủ phẻ hem<br>
+;> z mỗi ngày 5h 6h chiều chồng nhắn e nha vy
