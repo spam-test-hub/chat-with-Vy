@@ -11,4 +11,5 @@ nay năm tuổi chắc sẽ đen e<br>
 ;> thì iu lâu, e già a ko bỏ e đâu e nhó<br>
 mình cùng nhau kiếm tiền, tối về có nhau<br>
 sáng thì a bận ngủ chứ hong dậy sớm để nấu ăn đâu e =))<br>
-;> e nấu sẵn a ăn thì đc =))
+;> e nấu sẵn a ăn thì đc =))<br>
+;> e làm ô sin phục vụ cho a, còn a thì làm đũy cho e
