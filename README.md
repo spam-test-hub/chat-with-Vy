@@ -7,4 +7,5 @@ nếu mà lâu quá thì chắc sẽ có cơ hội gặp đc 1 lần<br>
 để a tính ròi sắp xếp lại<br>
 nay năm tuổi chắc sẽ đen e<br>
 để e ghệ nứng lâu, vs đợi lâu quá hem đc<br>
-=)) tranh thủ xài e trước khi e già
+=)) tranh thủ xài e trước khi e già<br>
+;> thì iu lâu, e già a ko bỏ e đâu e nhó
