@@ -10,4 +10,5 @@ có aiu nhỏ tuổi hơn sướng ròi còn gì e<br>
 ;> e ăn cơm, tắm truồng đồ chưa<br>
 thì e vệ sinh cá nhân, ăn cơm đi ròi lên seen a nhắn cũng đc e<br>
 chồng làm về thì chồng tắm ròi e<br>
-;> đâu e chụp hình e post lên coi mập ốm tròn méo như nào e
+;> đâu e chụp hình e post lên coi mập ốm tròn méo như nào e<br>
+ròi mấy nay có tính ở chung a đc nhiu năm hem e
