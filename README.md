@@ -24,4 +24,5 @@ a cũng chả có nhu cầu trả góp xe, hay điện thoại,...<br>
 a mua gì cần thiết thôi<br>
 =)) mua ít nhưng mà đồ xịn kiểu z<br>
 ;> nói chung thì bề ngoài a chỉ cần mua ít bộ đồ để bận thôi, tại vì mập lên thì chật ròi<br>
-nói chung thì a khá kén chọn job cho nên là có việc đoàng hoàng mà a đéo thích thì a cũng chả thích, chả vui nữa, thấy bth
+nói chung thì a khá kén chọn job cho nên là có việc đoàng hoàng mà a đéo thích thì a cũng chả thích, chả vui nữa, thấy bth<br>
+ghệ iu ngủ ngon nha e
