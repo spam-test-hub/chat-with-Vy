@@ -17,4 +17,6 @@ giờ ctay ròi nó cũng ít lú ra, a cũng ít thấy nyc nữa<br>
 gặp nhìu chưa chắc sẽ nhớ, nhưng mà ít gặp chắc chắn sẽ quên =))<br>
 ;> e thì aiu nhắn hằng ngày mà quên gì e<br>
 e là combo gơn răm + gơn trưởng thành đó<br>
-;> a chuẩn bị đánh răng đi ngủ nà e
+;> a chuẩn bị đánh răng đi ngủ nà e<br>
+job a làm thì tiền cũng đủ a xài à e<br>
+vs lại thì a cũng chả thích làm nữa, cho nên a cũng ko coi nó là công việc nữa
