@@ -16,4 +16,5 @@ ròi mấy nay có tính ở chung a đc nhiu năm hem e<br>
 giờ ctay ròi nó cũng ít lú ra, a cũng ít thấy nyc nữa<br>
 gặp nhìu chưa chắc sẽ nhớ, nhưng mà ít gặp chắc chắn sẽ quên =))<br>
 ;> e thì aiu nhắn hằng ngày mà quên gì e<br>
-e là combo gơn răm + gơn trưởng thành đó
+e là combo gơn răm + gơn trưởng thành đó<br>
+;> a chuẩn bị đánh răng đi ngủ nà e
