@@ -19,4 +19,7 @@ gặp nhìu chưa chắc sẽ nhớ, nhưng mà ít gặp chắc chắn sẽ qu�
 e là combo gơn răm + gơn trưởng thành đó<br>
 ;> a chuẩn bị đánh răng đi ngủ nà e<br>
 job a làm thì tiền cũng đủ a xài à e<br>
-vs lại thì a cũng chả thích làm nữa, cho nên a cũng ko coi nó là công việc nữa
+vs lại thì a cũng chả thích làm nữa, cho nên a cũng ko coi nó là công việc nữa<br>
+a cũng chả có nhu cầu trả góp xe, hay điện thoại,...<br>
+a mua gì cần thiết thôi<br>
+=)) mua ít nhưng mà đồ xịn kiểu z
