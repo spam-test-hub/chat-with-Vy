@@ -14,4 +14,5 @@ chồng làm về thì chồng tắm ròi e<br>
 ròi mấy nay có tính ở chung a đc nhiu năm hem e<br>
 ;> xưa thì nyc ghiền a như xì ke z đó, đeo hắng ngày<br>
 giờ ctay ròi nó cũng ít lú ra, a cũng ít thấy nyc nữa<br>
-gặp nhìu chưa chắc sẽ nhớ, nhưng mà ít gặp chắc chắn sẽ quên =))
+gặp nhìu chưa chắc sẽ nhớ, nhưng mà ít gặp chắc chắn sẽ quên =))<br>
+;> e thì aiu nhắn hằng ngày mà quên gì e
