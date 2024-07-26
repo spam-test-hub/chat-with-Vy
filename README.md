@@ -7,4 +7,5 @@ iu xa vẫn nứng bth hả e<br>
 ;> a ít nhắn ròi dãy tê tê đi à<br>
 ;> a giờ nhìn ngon lành, gây nứng, chứ hong có tàn tạ đâu e<br>
 ;> e nhìn a là e ướt quần lun á<br>
-e có thói quen ngủ truồng hem
+e có thói quen ngủ truồng hem<br>
+a ngủ bận đồ nha e
