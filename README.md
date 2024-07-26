@@ -9,4 +9,5 @@ iu xa vẫn nứng bth hả e<br>
 ;> e nhìn a là e ướt quần lun á<br>
 e có thói quen ngủ truồng hem<br>
 a ngủ bận đồ nha e<br>
-e thích a bận áo sơ mi hem 
+e thích a bận áo sơ mi hem<br>
+hỏi e z thôi chứ a mua tháo thun bận =))
