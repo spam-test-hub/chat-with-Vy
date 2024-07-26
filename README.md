@@ -8,4 +8,5 @@ iu xa vẫn nứng bth hả e<br>
 ;> a giờ nhìn ngon lành, gây nứng, chứ hong có tàn tạ đâu e<br>
 ;> e nhìn a là e ướt quần lun á<br>
 e có thói quen ngủ truồng hem<br>
-a ngủ bận đồ nha e
+a ngủ bận đồ nha e<br>
+e thích a bận áo sơ mi hem 
