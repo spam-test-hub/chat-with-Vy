@@ -4,4 +4,5 @@
 nãy giờ a chưa tắm ;><br>
 iu xa vẫn nứng bth hả e<br>
 ;> nãy giờ a code xíu e à<br>
-;> a ít nhắn ròi dãy tê tê đi à
+;> a ít nhắn ròi dãy tê tê đi à<br>
+;> a giờ nhìn ngon lành, gây nứng, chứ hong có tàn tạ đâu e
