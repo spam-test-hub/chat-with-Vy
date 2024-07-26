@@ -3,4 +3,5 @@
 ;> a tắm ròi làm chuyện lặt vặt tí ròi nhắn e sau nha<br>
 nãy giờ a chưa tắm ;><br>
 iu xa vẫn nứng bth hả e<br>
-;> nãy giờ a code xíu e à
+;> nãy giờ a code xíu e à<br>
+;> a ít nhắn ròi dãy tê tê đi à
