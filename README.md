@@ -28,4 +28,5 @@ job a ổn, tình cảm mình ok, qua sự phê duyệt của a là ở chung e<
 ;> 1 năm thì về quê ít ngày, còn ngày lễ, ngày nghỉ thì a thích ở sài gòn<br>
 chỗ nào làm mình vui thì mình muốn gắn bó lâu dài thôi e, mình chọn chỗ đó thôi e<br>
 a sống vì a mà e<br>
-;> thì nữa có gia đình riêng thì sống vì gia đình nữa, cha mẹ 1 phần nhỏ
+;> thì nữa có gia đình riêng thì sống vì gia đình nữa, cha mẹ 1 phần nhỏ<br>
+thì nói chung thì bên nào làm mình vui thì mình nghiêng về bên đó, z thôi e
