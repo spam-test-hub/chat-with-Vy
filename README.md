@@ -21,4 +21,6 @@ miễn tài chính mình ổn, có tiền là đc<br>
 ;> a thì a sống theo cách a muốn kiểu z<br>
 chứ a ko sống để chiều lòng người khác, hay sống vừa miệng thiên hạ<br>
 ;> mà 2x tuổi ra trường, tự lập ròi mà còn cha mẹ đặt đâu con ngồi đấy thì bỏ đi là vừa<br>
-a nói thật
+a nói thật<br>
+a là có chính kiến, lập trường đoàng hoàng e ;><br>
+job a ổn, tình cảm mình ok, qua sự phê duyệt của a là ở chung e 
