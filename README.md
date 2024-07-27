@@ -9,4 +9,5 @@ a thích ở riêng nha e<br>
 ;> đợi riết xệ dú, mặt già lun mà hong thấy aiu đâu =))<br>
 a nói vui z thôi chứ chịu khó e nhó<br>
 ;> luyện sẽ ít thôi e<br>
-nữa có gì a giận e thì a ngủ riêng e chiu hem
+nữa có gì a giận e thì a ngủ riêng e chịu hem<br>
+=)) chắc là sẽ ngủ chung nhưng mạnh ai nấy nằm e
