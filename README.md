@@ -16,3 +16,4 @@ nữa có gì a giận e thì a ngủ riêng e chịu hem<br>
 a ko cũng ko phải dạng người ko có lập trường, đội cha mẹ lên đầu, hay xui gì làm nấy e nhó<br>
 ;> quan trọng là a duyệt e là đc<br>
 miễn tài chính mình ổn, có tiền là đc<br>
+;> trên đời a dị ứng nhất là sống theo ý người khác, khá là ghét<br>
