@@ -19,4 +19,6 @@ miễn tài chính mình ổn, có tiền là đc<br>
 ;> trên đời a dị ứng nhất là sống theo ý người khác, khá là ghét<br>
 =)) a muốn ở vs e thì tình cảm mình ok, tài chính ổn là 2 mình ở vs nhau thoải mái<br>
 ;> a thì a sống theo cách a muốn kiểu z<br>
-chứ a ko sống để chiều lòng người khác, hay sống vừa miệng thiên hạ
+chứ a ko sống để chiều lòng người khác, hay sống vừa miệng thiên hạ<br>
+;> mà 2x tuổi ra trường, tự lập ròi mà còn cha mẹ đặt đâu con ngồi đấy thì bỏ đi là vừa<br>
+a nói thật
