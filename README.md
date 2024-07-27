@@ -11,4 +11,8 @@ a nói vui z thôi chứ chịu khó e nhó<br>
 ;> luyện sẽ ít thôi e<br>
 nữa có gì a giận e thì a ngủ riêng e chịu hem<br>
 =)) chắc là sẽ ngủ chung nhưng mạnh ai nấy nằm e<br>
-;> tối nào a cũng uống trà hết nà
+;> tối nào a cũng uống trà hết nà<br>
+;> về tình cảm, hay cuộc đời a về sau là a quyết định e nhó<br>
+a ko cũng ko phải dạng người ko có lập trường, đội cha mẹ lên đầu, hay xui gì làm nấy e nhó<br>
+;> quan trọng là a duyệt e là đc<br>
+miễn tài chính mình ổn, có tiền là đc<br>
