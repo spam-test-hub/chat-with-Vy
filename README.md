@@ -5,4 +5,5 @@ a nhắn tối cỡ 12h nhen e<br>
 e ăn uống gì chưa e<br>
 ;> a hi vọng mình gặp nhau sớm nha e, nữa quen đc thì mình ở chung ko chèo nèo ở chung cha mẹ 2 bên nha e<br>
 a thích ở riêng nha e<br>
-;> e đợi a riết dú e từ bưởi thành mướp lun quá, lâu quá thì để a tính lại e nhó
+;> e đợi a riết dú e từ bưởi thành mướp lun quá, lâu quá thì để a tính lại e nhó<br>
+;> đợi riết xệ dú, mặt già lun mà hong thấy aiu đâu =))
