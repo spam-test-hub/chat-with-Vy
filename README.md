@@ -23,4 +23,7 @@ chứ a ko sống để chiều lòng người khác, hay sống vừa miệng t
 ;> mà 2x tuổi ra trường, tự lập ròi mà còn cha mẹ đặt đâu con ngồi đấy thì bỏ đi là vừa<br>
 a nói thật<br>
 a là có chính kiến, lập trường đoàng hoàng e ;><br>
-job a ổn, tình cảm mình ok, qua sự phê duyệt của a là ở chung e 
+job a ổn, tình cảm mình ok, qua sự phê duyệt của a là ở chung e<br>
+;> thì a có ý định, định cư trên sài gòn từ hồi a còn là sinh viên gòi e<br>
+;> 1 năm thì về quê ít ngày, còn ngày lễ, ngày nghỉ thì a thích ở sài gòn<br>
+chỗ nào làm mình vui thì mình muốn gắn bó lâu dài thôi e, mình chọn chỗ đó thôi e
