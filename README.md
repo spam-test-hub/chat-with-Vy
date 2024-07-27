@@ -17,3 +17,4 @@ a ko cũng ko phải dạng người ko có lập trường, đội cha mẹ lê
 ;> quan trọng là a duyệt e là đc<br>
 miễn tài chính mình ổn, có tiền là đc<br>
 ;> trên đời a dị ứng nhất là sống theo ý người khác, khá là ghét<br>
+=)) a muốn ở vs e thì tình cảm mình ok, tài chính ổn là 2 mình ở vs nhau thoải mái
