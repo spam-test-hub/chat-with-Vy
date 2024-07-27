@@ -26,4 +26,6 @@ a là có chính kiến, lập trường đoàng hoàng e ;><br>
 job a ổn, tình cảm mình ok, qua sự phê duyệt của a là ở chung e<br>
 ;> thì a có ý định, định cư trên sài gòn từ hồi a còn là sinh viên gòi e<br>
 ;> 1 năm thì về quê ít ngày, còn ngày lễ, ngày nghỉ thì a thích ở sài gòn<br>
-chỗ nào làm mình vui thì mình muốn gắn bó lâu dài thôi e, mình chọn chỗ đó thôi e
+chỗ nào làm mình vui thì mình muốn gắn bó lâu dài thôi e, mình chọn chỗ đó thôi e<br>
+a sống vì a mà e<br>
+;> thì nữa có gia đình riêng thì sống vì gia đình nữa, cha mẹ 1 phần nhỏ
