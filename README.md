@@ -9,4 +9,5 @@ ròi mấy nay có đòi ngủ chung hem e<br>
 =)) trêu cái dãy tê tê à<br>
 ;> thì quen đc thì quen lun e, tối  ôm ngủ chung nha e<br>
 hôm qua a nằm cái ngủ quên<br>
-mấy hôm a nhắn mà tự dưng im ra là a ngủ quên e nhó
+mấy hôm a nhắn mà tự dưng im ra là a ngủ quên e nhó<br>
+;> nữa e học nấu ăn đi, iu a là phải biết nấu
