@@ -15,4 +15,5 @@ mấy hôm a nhắn mà tự dưng im ra là a ngủ quên e nhó<br>
 ;> nội a cho e ngủ chung là e lời quá còn gì, này a bonus thêm phụ việc nhà, việc vặt nữa<br>
 ;> e sắm cái tạp dề đi, nửa e làm osin là vừa =))<br>
 ;> a ăn vừa miệng, ko thích nêm ngọt, hay mặn<br>
-gì chứ ngủ chung là e phái lắm
+gì chứ ngủ chung là e phái lắm<br>
+;> ngủ chung thì a bùn ngủ trước thì a ngủ trước nhen
