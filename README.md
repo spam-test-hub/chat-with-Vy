@@ -4,4 +4,5 @@ ròi mấy nay có đòi ngủ chung hem e<br>
 =)) cầu gặp đc aiu <br>
 ;> e bận áo a thấy cục mỡ bụng chà bà kìa<br>
 ;> e ghệ sợ hong ngon lành nữa a chê hả<br>
-=)) chê kiếm con khác
+=)) chê kiếm con khác<br>
+;> a trêu thôi mà e
