@@ -8,4 +8,5 @@ ròi mấy nay có đòi ngủ chung hem e<br>
 ;> a trêu thôi mà e<br>
 =)) trêu cái dãy tê tê à<br>
 ;> thì quen đc thì quen lun e, tối  ôm ngủ chung nha e<br>
-hôm qua a nằm cái ngủ quên 
+hôm qua a nằm cái ngủ quên<br>
+mấy hôm a nhắn mà tự dưng im ra là a ngủ quên e nhó
