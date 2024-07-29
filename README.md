@@ -10,4 +10,5 @@ ròi mấy nay có đòi ngủ chung hem e<br>
 ;> thì quen đc thì quen lun e, tối  ôm ngủ chung nha e<br>
 hôm qua a nằm cái ngủ quên<br>
 mấy hôm a nhắn mà tự dưng im ra là a ngủ quên e nhó<br>
-;> nữa e học nấu ăn đi, iu a là phải biết nấu
+;> nữa e học nấu ăn đi, iu a là phải biết nấu<br>
+;> thì a phụ e, a rửa chén đồ đó
