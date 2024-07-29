@@ -3,4 +3,5 @@ ròi mấy nay có đòi ngủ chung hem e<br>
 ;> đi chùa miễu, cầu may đi e<br>
 =)) cầu gặp đc aiu <br>
 ;> e bận áo a thấy cục mỡ bụng chà bà kìa<br>
-;> e ghệ sợ hong ngon lành nữa a chê hả
+;> e ghệ sợ hong ngon lành nữa a chê hả<br>
+=)) chê kiếm con khác
