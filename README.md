@@ -18,4 +18,6 @@ ròi chuyện khác tính sau há<br>
 ;> cho ngủ chung lời ròi còn gì e<br>
 thì iu a e lời ròi còn gì<br>
 ;> hợp gu, hợp tính cách, đc thỏa mãn dục dọng<br>
-;> a cho ngủ chung vài chục năm nữa
+;> a cho ngủ chung vài chục năm nữa<br>
+nyc a bỏ lâu ròi giờ a quen bồ mới là e đc thì mình lâu dài<br>
+;> tối a làm về mình ở vs nhau, còn hên thì kiếm job wfh ở vs nhau cả ngày =))
