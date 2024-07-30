@@ -24,4 +24,7 @@ nyc a bỏ lâu ròi giờ a quen bồ mới là e đc thì mình lâu dài<br>
 nghe cái khúc mà ngủ chung vài chục năm, vs quấn quýt cả ngày là e phái ròi<br>
 ;> tối thì ôm nhau ngủ chung, có gì lột quần quất lun =))<br>
 =)) nghe e phái phái liền<br>
-;> nhắn 1 2h a ngủ nhe e
+;> nhắn 1 2h a ngủ nhe e<br>
+rảnh e thường làm gì e<br>
+a đọc document code ko à<br>
+chứ a ko có lướt fb,tiktok,instagram coi mấy đó nhìu cái vô bổ, xàm
