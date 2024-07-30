@@ -15,4 +15,6 @@ update bản mới nhất đó e<br>
 ròi chuyện khác tính sau há<br>
 ;> để mình quen coi bền hong, ròi tính tiếp e<br>
 ;> thì quen lâu thì mình như gia đình của nhau z đó, 2 đứa mình chung xuồng e<br>
-;> cho ngủ chung lời ròi còn gì e
+;> cho ngủ chung lời ròi còn gì e<br>
+thì iu a e lời ròi còn gì<br>
+;> hợp gu, hợp tính cách, đc thỏa mãn dục dọng
