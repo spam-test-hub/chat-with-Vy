@@ -17,4 +17,5 @@ ròi chuyện khác tính sau há<br>
 ;> thì quen lâu thì mình như gia đình của nhau z đó, 2 đứa mình chung xuồng e<br>
 ;> cho ngủ chung lời ròi còn gì e<br>
 thì iu a e lời ròi còn gì<br>
-;> hợp gu, hợp tính cách, đc thỏa mãn dục dọng
+;> hợp gu, hợp tính cách, đc thỏa mãn dục dọng<br>
+;> a cho ngủ chung vài chục năm nữa
