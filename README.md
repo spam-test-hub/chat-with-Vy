@@ -13,4 +13,5 @@ update bản mới nhất đó e<br>
 ;> mình phải nghĩ đến, tính trước chứ e<br>
 ;> thôi giờ cứ iu 2 năm ròi thấy đc ở chung e nhó<br>
 ròi chuyện khác tính sau há<br>
-;> để mình quen coi bền hong, ròi tính tiếp e
+;> để mình quen coi bền hong, ròi tính tiếp e<br>
+;> thì quen lâu thì mình như gia đình của nhau z đó, 2 đứa mình chung xuồng e
