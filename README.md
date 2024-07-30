@@ -22,4 +22,5 @@ thì iu a e lời ròi còn gì<br>
 nyc a bỏ lâu ròi giờ a quen bồ mới là e đc thì mình lâu dài<br>
 ;> tối a làm về mình ở vs nhau, còn hên thì kiếm job wfh ở vs nhau cả ngày =))<br>
 nghe cái khúc mà ngủ chung vài chục năm, vs quấn quýt cả ngày là e phái ròi<br>
-;> tối thì ôm nhau ngủ chung, có gì lột quần quất lun =))
+;> tối thì ôm nhau ngủ chung, có gì lột quần quất lun =))<br>
+=)) nghe e phái phái liền
