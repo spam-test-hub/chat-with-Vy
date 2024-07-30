@@ -20,4 +20,5 @@ thì iu a e lời ròi còn gì<br>
 ;> hợp gu, hợp tính cách, đc thỏa mãn dục dọng<br>
 ;> a cho ngủ chung vài chục năm nữa<br>
 nyc a bỏ lâu ròi giờ a quen bồ mới là e đc thì mình lâu dài<br>
-;> tối a làm về mình ở vs nhau, còn hên thì kiếm job wfh ở vs nhau cả ngày =))
+;> tối a làm về mình ở vs nhau, còn hên thì kiếm job wfh ở vs nhau cả ngày =))<br>
+nghe cái khúc mà ngủ chung vài chục năm, vs quấn quýt cả ngày là e phái ròi
