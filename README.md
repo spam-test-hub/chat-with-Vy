@@ -10,4 +10,6 @@ update bản mới nhất đó e<br>
 ;> bồ e uy tín mà<br>
 ;> giả dụ, nữa mà quen lâu ròi có nhu cầu có con ròi doanh nghiệp e ai điều hành<br>
 =)) giờ thì a chưa có nhu cầu<br>
-;> mình phải nghĩ đến, tính trước chứ e
+;> mình phải nghĩ đến, tính trước chứ e<br>
+;> thôi giờ cứ iu 2 năm ròi thấy đc ở chung e nhó<br>
+ròi chuyện khác tính sau há
