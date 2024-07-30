@@ -17,4 +17,5 @@ mấy hôm a nhắn mà tự dưng im ra là a ngủ quên e nhó<br>
 ;> a ăn vừa miệng, ko thích nêm ngọt, hay mặn<br>
 gì chứ ngủ chung là e phái lắm<br>
 ;> ngủ chung thì a bùn ngủ trước thì a ngủ trước nhen<br>
-;> e dự định gặp nhau ròi, quen 1 thời gian e booking tour du lịch đi đụ hả
+;> e dự định gặp nhau ròi, quen 1 thời gian e booking tour du lịch đi đụ hả<br>
+;> hôm qua chồng ngủ quên
