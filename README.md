@@ -4,4 +4,5 @@ a nói để e biết, chứ e tưởng đứa đéo nào spam là a đi à<br>
 ;> e ghệ ăn cơm, rửa bím gì chưa<br>
 ;> nãy giờ a lu bu xíu e<br>
 ít ngày nữa a push code c# e nhó<br>
-mấy bữa nay a bận đọc document c# nên hơi thiếu ngủ xíu e
+mấy bữa nay a bận đọc document c# nên hơi thiếu ngủ xíu e<br>
+![image](https://github.com/user-attachments/assets/a4c8e9a0-1627-4d79-bdd1-e5126e1337b3)
