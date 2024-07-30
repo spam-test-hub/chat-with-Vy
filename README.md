@@ -7,4 +7,5 @@ a nói để e biết, chứ e tưởng đứa đéo nào spam là a đi à<br>
 mấy bữa nay a bận đọc document c# nên hơi thiếu ngủ xíu e<br>
 ![image](https://github.com/user-attachments/assets/a4c8e9a0-1627-4d79-bdd1-e5126e1337b3)<br>
 update bản mới nhất đó e<br>
-;> bồ e uy tín mà
+;> bồ e uy tín mà<br>
+;> giả dụ, nữa mà quen lâu ròi có nhu cầu có con ròi doanh nghiệp e ai điều hành
