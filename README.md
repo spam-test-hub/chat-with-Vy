@@ -27,4 +27,5 @@ nghe cái khúc mà ngủ chung vài chục năm, vs quấn quýt cả ngày là
 ;> nhắn 1 2h a ngủ nhe e<br>
 rảnh e thường làm gì e<br>
 a đọc document code ko à<br>
-chứ a ko có lướt fb,tiktok,instagram coi mấy đó nhìu cái vô bổ, xàm
+chứ a ko có lướt fb,tiktok,instagram coi mấy đó nhìu cái vô bổ, xàm<br>
+e ngủ ngon nha
