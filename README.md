@@ -15,4 +15,5 @@ ngủ lại thì để a coi lại =))<br>
 ;> a mới biết chạy xe số đc hơn nữa năm nay à e<br>
 =)) tay ga thì đề máy lên ga thôi<br>
 =))) a cũng chưa có bằng lái nửa<br>
-;> a đi học toàn đi xe bus ko à e ơi
+;> a đi học toàn đi xe bus ko à e ơi<br>
+;> ròi mấy nay có luyện sẽ hem
