@@ -20,4 +20,5 @@ ngủ lại thì để a coi lại =))<br>
 ;> nếu mà gặp e thường thì khỏi ngủ chung<br>
 mấy bữa a nằm a ngủ quên cho nên là a nhắn khúc đầu còn khúc sau a hem có nhắn gì<br>
 ;> ủa e người miền đông, a người miền tây z là mình cũng khác tính nhau kha khá ròi e<br>
-;> hay hong lẽ mình chênh nhau 5 tuổi mà khác nhau 
+;> hay hong lẽ mình chênh nhau 5 tuổi mà khác nhau<br>
+e ngủ ngon nha, mai nhắn tiếp nè
