@@ -16,4 +16,5 @@ ngủ lại thì để a coi lại =))<br>
 =)) tay ga thì đề máy lên ga thôi<br>
 =))) a cũng chưa có bằng lái nửa<br>
 ;> a đi học toàn đi xe bus ko à e ơi<br>
-;> ròi mấy nay có luyện sẽ hem
+;> ròi mấy nay có luyện sẽ hem<br>
+;> nếu mà gặp e thường thì khỏi ngủ chung
