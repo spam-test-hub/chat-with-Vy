@@ -10,4 +10,5 @@ bữa a học git gì giờ làm quầng quệnh lun ròi<br>
 ngủ lại thì để a coi lại =))<br>
 ;> e coi code chưa, a push lên nãy giờ<br>
 ;> ý a là lâu lâu mới gặp nên là a định ở chơi ngủ đêm ròi sáng hay xế xế chiều<br>
-;> a nhắn dơ dáy chứ gặp e bên ngoài thì chắc a sẽ ngại
+;> a nhắn dơ dáy chứ gặp e bên ngoài thì chắc a sẽ ngại<br>
+;> e lần đầu thấy a chắc e nghĩ, đồ ngon ở đâu vô dị chài
