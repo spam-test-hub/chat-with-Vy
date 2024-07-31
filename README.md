@@ -8,4 +8,5 @@ gặp e thứ 7 chịu hem<br>
 bữa a học git gì giờ làm quầng quệnh lun ròi<br>
 =)) quằn thiệt chứ e<br>
 ngủ lại thì để a coi lại =))<br>
-;> e coi code chưa, a push lên nãy giờ
+;> e coi code chưa, a push lên nãy giờ<br>
+;> ý a là lâu lâu mới gặp nên là a định ở chơi ngủ đêm ròi sáng hay xế xế chiều 
