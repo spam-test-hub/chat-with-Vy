@@ -17,4 +17,5 @@ ngủ lại thì để a coi lại =))<br>
 =))) a cũng chưa có bằng lái nửa<br>
 ;> a đi học toàn đi xe bus ko à e ơi<br>
 ;> ròi mấy nay có luyện sẽ hem<br>
-;> nếu mà gặp e thường thì khỏi ngủ chung
+;> nếu mà gặp e thường thì khỏi ngủ chung<br>
+mấy bữa a nằm a ngủ quên cho nên là a nhắn khúc đầu còn khúc sau a hem có nhắn gì
