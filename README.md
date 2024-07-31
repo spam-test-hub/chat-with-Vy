@@ -11,4 +11,7 @@ ngủ lại thì để a coi lại =))<br>
 ;> e coi code chưa, a push lên nãy giờ<br>
 ;> ý a là lâu lâu mới gặp nên là a định ở chơi ngủ đêm ròi sáng hay xế xế chiều<br>
 ;> a nhắn dơ dáy chứ gặp e bên ngoài thì chắc a sẽ ngại<br>
-;> e lần đầu thấy a chắc e nghĩ, đồ ngon ở đâu vô dị chài
+;> e lần đầu thấy a chắc e nghĩ, đồ ngon ở đâu vô dị chài<br>
+;> a mới biết chạy xe số đc hơn nữa năm nay à e<br>
+=)) tay ga thì đề máy lên ga thôi<br>
+=))) a cũng chưa có bằng lái nửa
