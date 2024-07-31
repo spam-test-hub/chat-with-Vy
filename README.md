@@ -5,4 +5,5 @@ gặp e thứ 7 chịu hem<br>
 ;> để a xắp sếp lại e nhó <br>
 ;> ròi mình gặp ở đâu, chỗ e ở hay sao<br>
 ;> gặp t7 ròi ngủ lại đêm sang chủ nhật về chịu hem e<br>
-bữa a học git gì giờ làm quầng quệnh lun ròi
+bữa a học git gì giờ làm quầng quệnh lun ròi<br>
+=)) quằn thiệt chứ e
