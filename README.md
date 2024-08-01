@@ -1,2 +1,3 @@
 ;> tầm 4,5 tuần sau mình gặp nhau chiều thứ 6 tới thứ 7 e nhó<br>
-;> ghệ a cơm nước chưa e
+;> ghệ a cơm nước chưa e<br>
+;> e đang làm gì đó
