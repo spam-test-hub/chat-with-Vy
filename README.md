@@ -6,4 +6,5 @@
 ;> ròi e chuẩn bị váy ngủ lần đi<br>
 ;> váy ngủ để ngủ vs chồng nhe hem<br>
 dạo này mỏ còn hỗn hong e<br>
-tối ngủ thả rông dú nha e
+tối ngủ thả rông dú nha e<br>
+ròi a nắn dú cho
