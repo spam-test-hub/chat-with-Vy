@@ -2,4 +2,5 @@
 ;> ghệ a cơm nước chưa e<br>
 ;> e đang làm gì đó<br>
 ;> e ghệ nhớ a hem<br>
-;> sinh nhật e ngày nào e
+;> sinh nhật e ngày nào e<br>
+;> ròi e chuẩn bị váy ngủ lần đi
