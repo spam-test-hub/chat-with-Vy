@@ -7,4 +7,5 @@
 ;> váy ngủ để ngủ vs chồng nhe hem<br>
 dạo này mỏ còn hỗn hong e<br>
 tối ngủ thả rông dú nha e<br>
-ròi a nắn dú cho
+ròi a nắn dú cho<br>
+kiểu như là mình vừa hôn môi mà a vừa nắn dú cho e là phê thôi ròi lun
