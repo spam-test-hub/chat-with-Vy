@@ -6,4 +6,5 @@ cơm nước tắm rửa gì chưa e<br>
 ngủ lại đêm mai về oki e<br>
 ;> còn nungd hem e, để dành cỡ 1 tháng hơn nữa xã nungf<br>
 a code xíu rảnh a nhắn nha<br>
-;> dạo này mỏ e còn hỗn hem
+;> dạo này mỏ e còn hỗn hem<br>
+a đang giảm cân nè e, e có định giảm cân hem ;>
