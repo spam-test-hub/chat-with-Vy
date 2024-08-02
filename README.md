@@ -10,4 +10,6 @@ a code xíu rảnh a nhắn nha<br>
 a đang giảm cân nè e, e có định giảm cân hem ;><br>
 ;> mặt a hơi nọng xíu<br>
 năm nay nếu mà xui thì gặp e ít lần<br>
-;> còn nếu mà ổn định cv, chỗ ở thì gặp e thường e nhó
+;> còn nếu mà ổn định cv, chỗ ở thì gặp e thường e nhó<br>
+nào đi thì a cho e hay<br>
+;> ròi e gửi a cái địa chỉ nhó
