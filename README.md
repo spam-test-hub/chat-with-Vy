@@ -8,4 +8,6 @@ ngủ lại đêm mai về oki e<br>
 a code xíu rảnh a nhắn nha<br>
 ;> dạo này mỏ e còn hỗn hem<br>
 a đang giảm cân nè e, e có định giảm cân hem ;><br>
-;> mặt a hơi nọng xíu
+;> mặt a hơi nọng xíu<br>
+năm nay nếu mà xui thì gặp e ít lần<br>
+;> còn nếu mà ổn định cv, chỗ ở thì gặp e thường e nhó
