@@ -1,4 +1,6 @@
 ;> hi e ghệ<br>
 cơm nước tắm rửa gì chưa e<br>
 ;> ròi hôm mình gặp nhau có cho nắn dú hem e<br>
-để a biết a chuẩn bị
+để a biết a chuẩn bị<br>
+;> nếu mọi chuyện ok thì a sẽ gặp e<br>
+ngủ lại đêm mai về oki e 
