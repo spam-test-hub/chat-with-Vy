@@ -1,11 +1,2 @@
-;> tầm 4,5 tuần sau mình gặp nhau chiều thứ 6 tới thứ 7 e nhó<br>
-;> ghệ a cơm nước chưa e<br>
-;> e đang làm gì đó<br>
-;> e ghệ nhớ a hem<br>
-;> sinh nhật e ngày nào e<br>
-;> ròi e chuẩn bị váy ngủ lần đi<br>
-;> váy ngủ để ngủ vs chồng nhe hem<br>
-dạo này mỏ còn hỗn hong e<br>
-tối ngủ thả rông dú nha e<br>
-ròi a nắn dú cho<br>
-kiểu như là mình vừa hôn môi mà a vừa nắn dú cho e là phê thôi ròi lun
+;> hi e ghệ<br>
+cơm nước tắm rửa gì chưa e
