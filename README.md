@@ -10,4 +10,5 @@ biết aiu tròn méo như nào, ròi ôm ấp hôn hít, ngủ chung miếng ch
 ;> lâu ngày gặp nhau sáp lại đụ hả =))<br>
 ;> mún cho a coi sò long hả<br>
 :> e nuôi 1 thời gian đi, a coi sau cũng đc<br>
-;> e 29 tuổi mới biết nungd =))
+;> e 29 tuổi mới biết nungd =))<br>
+;> thì quen lâu nữa mình thấy hết của nhau bth e
