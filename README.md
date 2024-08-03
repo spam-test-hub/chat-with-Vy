@@ -16,4 +16,5 @@ a nhắn nãy giờ chắc e ghệ ướt quần xì líp lun quá ;><br>
 ;> tà tưa thì a mua đc a mua nhe, đi hơi xa<br>
 ;> nếu hợp vị e thì có dịp a mua cho 2-3 ly uống<br>
 ;> trà sữa đó ở dưới TP tỉnh a lận<br>
-;> a thấy trà sữa chỗ đó oki còn trà thì tạm đc
+;> a thấy trà sữa chỗ đó oki còn trà thì tạm đc<br>
+;> để a ổn định cv, chỗ ở thì mình gặp nhau thường e nhó
