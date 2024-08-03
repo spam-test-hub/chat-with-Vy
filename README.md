@@ -12,4 +12,5 @@ biết aiu tròn méo như nào, ròi ôm ấp hôn hít, ngủ chung miếng ch
 :> e nuôi 1 thời gian đi, a coi sau cũng đc<br>
 ;> e 29 tuổi mới biết nungd =))<br>
 ;> thì quen lâu nữa mình thấy hết của nhau bth e<br>
-a nhắn nãy giờ chắc e ghệ ướt quần xì líp lun quá ;>
+a nhắn nãy giờ chắc e ghệ ướt quần xì líp lun quá ;><br>
+;> tà tưa thì a mua đc a mua nhe, đi hơi xa
