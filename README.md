@@ -8,4 +8,5 @@ tự dưng mập lên ròi bận quần chật giò, ngồi chòm hỏm là tét
 biết aiu tròn méo như nào, ròi ôm ấp hôn hít, ngủ chung miếng cho bớt nungdf<br>
 ;> a ko chắc mình sẽ trần truồng nhe<br>
 ;> lâu ngày gặp nhau sáp lại đụ hả =))<br>
-;> mún cho a coi sò long hả
+;> mún cho a coi sò long hả<br>
+:> e nuôi 1 thời gian đi, a coi sau cũng đc
