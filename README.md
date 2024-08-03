@@ -6,4 +6,5 @@ tự dưng mập lên ròi bận quần chật giò, ngồi chòm hỏm là tét
 ;> trong khoảng tháng 9 mình gặp nhau oki e<br>
 ;> gặp nhau để e biết a như nào, ròi xã nungfd bớt<br>
 biết aiu tròn méo như nào, ròi ôm ấp hôn hít, ngủ chung miếng cho bớt nungdf<br>
-;> a ko chắc mình sẽ trần truồng nhe
+;> a ko chắc mình sẽ trần truồng nhe<br>
+;> lâu ngày gặp nhau sáp lại đụ hả =))
