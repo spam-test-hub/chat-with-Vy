@@ -17,4 +17,5 @@ a nhắn nãy giờ chắc e ghệ ướt quần xì líp lun quá ;><br>
 ;> nếu hợp vị e thì có dịp a mua cho 2-3 ly uống<br>
 ;> trà sữa đó ở dưới TP tỉnh a lận<br>
 ;> a thấy trà sữa chỗ đó oki còn trà thì tạm đc<br>
-;> để a ổn định cv, chỗ ở thì mình gặp nhau thường e nhó
+;> để a ổn định cv, chỗ ở thì mình gặp nhau thường e nhó<br>
+phải a về quê a mới ghé mua cho e đc
