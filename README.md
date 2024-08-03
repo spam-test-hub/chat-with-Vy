@@ -13,4 +13,6 @@ biết aiu tròn méo như nào, ròi ôm ấp hôn hít, ngủ chung miếng ch
 ;> e 29 tuổi mới biết nungd =))<br>
 ;> thì quen lâu nữa mình thấy hết của nhau bth e<br>
 a nhắn nãy giờ chắc e ghệ ướt quần xì líp lun quá ;><br>
-;> tà tưa thì a mua đc a mua nhe, đi hơi xa
+;> tà tưa thì a mua đc a mua nhe, đi hơi xa<br>
+;> nếu hợp vị e thì có dịp a mua cho 2-3 ly uống<br>
+;> trà sữa đó ở tỉnh a lận 
