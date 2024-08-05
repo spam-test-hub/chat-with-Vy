@@ -6,4 +6,6 @@
 ;> tầm chiều T6 alo e nhó cỡ  4-5 tuần nữa nhe<br>
 ;> có gì thay đổi đột xuất thì a nhắn sau e nhó<br>
 ;> alo e, sắp ngủ chưa e<br>
-;> e đừng có suy nghĩ nhìu mêt đầu e, làm kiếm tiền đc ròi, chuyện khác mình tinh sau e nhó
+;> e đừng có suy nghĩ nhìu mêt đầu e, làm kiếm tiền đc ròi, chuyện khác mình tinh sau e nhó<br>
+;> e chặn số a ròi lấy qq gì mốt a gọi hỏi địa chỉ<br>
+e muốn ctay, ko quen nữa à
