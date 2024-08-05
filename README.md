@@ -5,4 +5,5 @@
 ;> nhớ bữa gặp a, alo ròi gửi a địa chỉ nhe e<br>
 ;> tầm chiều T6 alo e nhó cỡ  4-5 tuần nữa nhe<br>
 ;> có gì thay đổi đột xuất thì a nhắn sau e nhó<br>
-;> alo e, sắp ngủ chưa e
+;> alo e, sắp ngủ chưa e<br>
+;> e đừng có suy nghĩ nhìu mêt đầu e, làm kiếm tiền đc ròi, chuyện khác mình tinh sau e nhó
