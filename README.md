@@ -6,4 +6,5 @@
 ;>  ghệ a thức đêm luyện sẽ riết mắt thâm quầng kìa e<br>
 ;> bớt bớt lại nha e<br>
 ;> mà e luyện sẽ để làm gì e<br>
-e coi sẽ để thỏa mãn nhu cầu sinh lý chứ giề
+e coi sẽ để thỏa mãn nhu cầu sinh lý chứ giề<br>
+29 tuổi như e coi sẽ thì cũng hơi muộn thật
