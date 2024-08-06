@@ -4,4 +4,5 @@
 ;> luyện sẽ lấy kinh nghiệm nữa thực hành chứ gì e<br>
 ;> a lạ gì e<br>
 ;>  ghệ a thức đêm luyện sẽ riết mắt thâm quầng kìa e<br>
-;> bớt bớt lại nha e
+;> bớt bớt lại nha e<br>
+;> mà e luyện sẽ để làm gì e
