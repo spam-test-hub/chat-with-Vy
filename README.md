@@ -1,13 +1,1 @@
-;> lô e<br>
-;> e là phụ nữ gia trưởng hả<br>
-;> nãy giờ a bận xíu e nha<br>
-;> ghệ a tắm rửa gì chưa<br>
-;> nhớ bữa gặp a, alo ròi gửi a địa chỉ nhe e<br>
-;> tầm chiều T6 alo e nhó cỡ  4-5 tuần nữa nhe<br>
-;> có gì thay đổi đột xuất thì a nhắn sau e nhó<br>
-;> alo e, sắp ngủ chưa e<br>
-;> e đừng có suy nghĩ nhìu mêt đầu e, làm kiếm tiền đc ròi, chuyện khác mình tinh sau e nhó<br>
-;> e chặn số a ròi lấy qq gì mốt a gọi hỏi địa chỉ<br>
-e muốn ctay, ko quen nữa à<br>
-;> thôi z mốt a alo lại e mà chặn nữa thì thôi, khỏi gặp<br>
-giải tán mẹ khỏi quen nữa
+;> lô e
