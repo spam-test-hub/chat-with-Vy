@@ -7,4 +7,5 @@ a đúng gu e nhưng mà nhỏ tuổi hả<br>
 =))<br>
 ;> e thích a ở điểm gì e<br>
 ;> thì iu lâu mình ăn nằm vs nhau cả đời thì a cũng coi e như gia đình của a z đó<br>
-;> a sẽ ưu tiên e, cha mẹ, a chị e, ròi họ hàng cô dì chú bác sau
+;> a sẽ ưu tiên e, cha mẹ, a chị e, ròi họ hàng cô dì chú bác sau<br>
+a nhắn a nói nhìu z chứ, gặp a ,a ít nói lắm
