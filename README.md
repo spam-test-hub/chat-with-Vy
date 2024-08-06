@@ -4,4 +4,5 @@
 ròi có bận áo dây, gợi cảm đồ ren gì để gạ đụ hem<br>
 a đúng gu e nhưng mà nhỏ tuổi hả<br>
 ;> nửa a giặt quần xì,áo dú cho<br>
-=))
+=))<br>
+;> e thích a ở điểm gì e
