@@ -5,4 +5,5 @@
 ;> a lạ gì e<br>
 ;>  ghệ a thức đêm luyện sẽ riết mắt thâm quầng kìa e<br>
 ;> bớt bớt lại nha e<br>
-;> mà e luyện sẽ để làm gì e
+;> mà e luyện sẽ để làm gì e<br>
+e coi sẽ để thỏa mãn nhu cầu sinh lý chứ giề
