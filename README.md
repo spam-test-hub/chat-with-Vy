@@ -9,4 +9,5 @@ hết tuần này còn khoảng 4 tuần nữa mình gặp nhau nhe<br>
 ;> cái chung uống trà uống rựu ấy e, not cái chum =))<br>
 ;> cái chum trong cái chum cái vại ấy e<br>
 =)) tự dưng nhảy sang nói chuyện chung, chén ,lu<br>
-;> bữa qua e ngủ bật phim sẽ coi e =))
+;> bữa qua e ngủ bật phim sẽ coi e =))<br>
+;> đâu e coi tập nào hay giới thiệu a =))
