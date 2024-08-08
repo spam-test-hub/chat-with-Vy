@@ -8,4 +8,5 @@ kiểu như làm job nào mà trong 1 năm a ko có ý định nhảy việc th�
 làm như tam tai làm qq gì cũng ko như ý hết e<br>
 =)) gặp lần ròi qua tết gặp lại<br>
 =))) bữa gặp nhau bật phim sẽ lên coi e<br>
-2 đứa mình luyện sẽ tiết lú lun e =))
+2 đứa mình luyện sẽ tiết lú lun e =))<br>
+;> ngủ chưa e
