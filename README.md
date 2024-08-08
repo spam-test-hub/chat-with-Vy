@@ -10,4 +10,5 @@ làm như tam tai làm qq gì cũng ko như ý hết e<br>
 =))) bữa gặp nhau bật phim sẽ lên coi e<br>
 2 đứa mình luyện sẽ tiết lú lun e =))<br>
 ;> ngủ chưa e<br>
-;> ghệ a nhìn cũng ngon hem xài thì phí quá
+;> ghệ a nhìn cũng ngon hem xài thì phí quá<br>
+;> hứa iu mình e ko đực cái con khác =))
