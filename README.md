@@ -6,4 +6,5 @@
 ;> a gặp e như đã hẹn ròi khi nào gặp lại thì chưa biết<br>
 kiểu như làm job nào mà trong 1 năm a ko có ý định nhảy việc thì mới gọi là ổn định<br>
 làm như tam tai làm qq gì cũng ko như ý hết e<br>
-=)) gặp lần ròi qua tết gặp lại
+=)) gặp lần ròi qua tết gặp lại<br>
+=))) bữa gặp nhau bật phim sẽ lên coi e
