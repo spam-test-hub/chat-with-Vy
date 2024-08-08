@@ -4,4 +4,5 @@
 ;> hay làm tạm đến khi nhận offer hay có thể 1-3 tháng gì đó a sẽ nghỉ cũng tùy nữa<br>
 ;> kiểu như a làm đâu, a ko vừa ý cái gì là a mún nghỉ z thôi<br>
 ;> a gặp e như đã hẹn ròi khi nào gặp lại thì chưa biết<br>
-kiểu như làm job nào mà trong 1 năm a ko có ý định nhảy việc thì mới gọi là ổn định
+kiểu như làm job nào mà trong 1 năm a ko có ý định nhảy việc thì mới gọi là ổn định<br>
+làm như tam tai làm qq gì cũng ko như ý hết e
