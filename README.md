@@ -9,4 +9,6 @@ ròi còn người, ngta cưới dại ròi ko hạnh phúc, li dị, chửi l�
 ;> a xuông xẻ đi tối tối e ngủ có người ôm sợ gì<br>
 ;> bữa gặp a nắn dú cho<br>
 ;> dù quen lâu mới nắn dú mà mới quen nắn dú a thấy kì kì sao á<br>
-=)) quen cũng kha khá thời gian mới này nọ lọ chai đc e, như e là nhanh ròi
+=)) quen cũng kha khá thời gian mới này nọ lọ chai đc e, như e là nhanh ròi<br>
+;> thấy e nungf quá chiều chiều e tý đó<br>
+;> chứ mới quen chưa xác định lâu dài mà bóp nắn, ăn nằm gì e
