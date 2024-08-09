@@ -18,4 +18,5 @@ ròi còn người, ngta cưới dại ròi ko hạnh phúc, li dị, chửi l�
 ;> thì quen e ,quen thật chứ ko quen chơi, hợp thì ở vs nhau tới già<br>
 ;> thì muốn bóp nắn thì e ăn bận đồ cho dễ bóp nắn z thôi<br>
 =)) lên kế hoạch trước e, có cả bóp dú lun<br>
-qq gì cũng lên kế hoạch trước e =))
+qq gì cũng lên kế hoạch trước e =))<br>
+;> c# thì chắc khoảng 1-2 tuần a mới push code 1 lần e nhó
