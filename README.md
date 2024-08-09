@@ -12,4 +12,5 @@ ròi còn người, ngta cưới dại ròi ko hạnh phúc, li dị, chửi l�
 =)) quen cũng kha khá thời gian mới này nọ lọ chai đc e, như e là nhanh ròi<br>
 ;> thấy e nungf quá chiều chiều e tý đó<br>
 ;> chứ mới quen chưa xác định lâu dài mà bóp nắn, ăn nằm gì e<br>
-;> ý a là quen coi bền hong chứ xu nữa đường gãy thì hơi toang
+;> ý a là quen coi bền hong chứ xu nữa đường gãy thì hơi toang<br>
+;> thì quen thì xác định lâu dài mà sợ xu cà na nữa đường ctay ý a thế
