@@ -8,4 +8,5 @@ ròi còn người, ngta cưới dại ròi ko hạnh phúc, li dị, chửi l�
 ;> e tuổi này có người ôm là ngon ròi<br>
 ;> a xuông xẻ đi tối tối e ngủ có người ôm sợ gì<br>
 ;> bữa gặp a nắn dú cho<br>
-;> dù quen lâu mới nắn dú mà mới quen nắn dú a thấy kì kì sao á
+;> dù quen lâu mới nắn dú mà mới quen nắn dú a thấy kì kì sao á<br>
+=)) quen cũng kha khá thời gian mới này nọ lọ chai đc e, như e là nhanh ròi
