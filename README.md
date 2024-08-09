@@ -20,4 +20,5 @@ ròi còn người, ngta cưới dại ròi ko hạnh phúc, li dị, chửi l�
 =)) lên kế hoạch trước e, có cả bóp dú lun<br>
 qq gì cũng lên kế hoạch trước e =))<br>
 ;> c# thì chắc khoảng 1-2 tuần a mới push code 1 lần e nhó<br>
-;> ghệ a tắm rửa gì chưa
+;> ghệ a tắm rửa gì chưa<br>
+;> a đang học c# lẫn reactjs mà ưu tiên reactjs hơn 
