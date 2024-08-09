@@ -5,4 +5,5 @@ job của a ko đc xuông xẻ, ko ổn lắm cho nên là a ko chắc sẽ gặ
 ;> thôi kệ e 29-30 có ny hợp gu là ngon ròi nhìu người ngta kiếm tới 3x 4x còn chưa thấy ai hợp mình kìa<br>
 ;> nằm ko tới 3x 4x tuổi kìa<br>
 ròi còn người, ngta cưới dại ròi ko hạnh phúc, li dị, chửi lộn các thứ, e vầy hên ròi<br>
-;> e tuổi này có người ôm là ngon ròi
+;> e tuổi này có người ôm là ngon ròi<br>
+;> a xuông xẻ đi tối tối e ngủ có người ôm sợ gì
