@@ -16,4 +16,6 @@ ròi còn người, ngta cưới dại ròi ko hạnh phúc, li dị, chửi l�
 ;> thì quen thì xác định lâu dài mà sợ xu cà na nữa đường ctay ý a thế<br>
 =)) a nói hơi loằng quằng e nhễ<br>
 ;> thì quen e ,quen thật chứ ko quen chơi, hợp thì ở vs nhau tới già<br>
-;> thì muốn bóp nắn thì e ăn bận đồ cho dễ bóp nắn z thôi
+;> thì muốn bóp nắn thì e ăn bận đồ cho dễ bóp nắn z thôi<br>
+=)) lên kế hoạch trước e, có cả bóp dú lun<br>
+qq gì cũng lên kế hoạch trước e =))
